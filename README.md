@@ -1,2 +1,2 @@
 # Certificates
-These are my certificates and scores.
+These are my certificates and transcript.
